@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Priya
+- 👋 Hi, I’m Moupriya
 - 👀 I’m interested in Music & Reading
 - 🌱 I’m currently working as a Freelance Content Writer
 - 💞️ I’m looking to collaborate on FOOD AND TRAVEL RELATED TOPICS FOR THE TIME BEING...
